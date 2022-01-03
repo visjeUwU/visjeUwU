@@ -1,0 +1,5 @@
+- 👋 Hi, I’m visje
+- 👀 I’m interested in watur
+- 🌱 I’m currently learning zwemmen
+- 💞️ I’m looking to collaborate on watur
+- 📫 How to reach me discord: Visje_水小魚#6996
